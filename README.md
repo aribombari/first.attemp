@@ -1,2 +1,2 @@
-# first.attemp
-My start attemt at anything in this community
+# first.attempt
+My first attempt at anything in this community
